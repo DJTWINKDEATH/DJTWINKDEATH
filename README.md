@@ -1,3 +1,4 @@
+<img width="150" height="20" alt="tumblr_63d9f8e00abe7964bc02c07c5b5d00a0_5641a837_250" src="https://github.com/user-attachments/assets/fb54be4e-6637-4ea5-9678-28f8056428e3" />
 ## 𝘏𝘦𝘭𝘭𝘰.ᐟ 𝘐'𝘮 𝘕𝘰𝘦𝘭, (𝘰𝘳 𝘌𝘥𝘥𝘪𝘦).ᐟ
 <img width="1280" height="114" alt="tumblr_3b56d3e63eeff01cda3004bfb867efc6_8437b43a_1280" src="https://github.com/user-attachments/assets/0cd1f702-a46d-43c9-8fdc-6c983c3dc0b0" />
 
@@ -41,6 +42,9 @@
 <img width="150" height="20" alt="tumblr_91b3f3160f47b76b0f6fd30dbfa51909_9a6a000e_250" src="https://github.com/user-attachments/assets/e6f6c2d1-0924-43ed-ab83-7a224ab57912" />
 <img width="150" height="20" alt="tumblr_7676dfab05b0c3509821183997c12b2c_239b5165_250" src="https://github.com/user-attachments/assets/43558d68-7c76-445b-b865-4e53da167782" />
 <img width="150" height="20" alt="tumblr_6ab0736f45296b258e9626d6c2da3f1d_577400b0_250" src="https://github.com/user-attachments/assets/7675954f-2e78-491a-a54a-058ec111a456" />
+<img width="150" height="20" alt="tumblr_63d9f8e00abe7964bc02c07c5b5d00a0_5641a837_250" src="https://github.com/user-attachments/assets/0fd314d0-a872-4385-b5df-95344b5bf340" />
+<img width="150" height="20" alt="tumblr_8a6d8a086fa9f570a3edb03805dbaba4_264a0d2a_250" src="https://github.com/user-attachments/assets/47ebeb4c-b673-4aff-a431-317be17353b8" />
+<img width="150" height="20" alt="tumblr_d6f56795f126aa0576cf28c9b78021e4_66201707_250" src="https://github.com/user-attachments/assets/31635826-986b-43b5-bd80-4ee1f61f6950" />
 
 
 
