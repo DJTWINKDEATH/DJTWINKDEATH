@@ -1,4 +1,3 @@
-<img width="150" height="20" alt="tumblr_63d9f8e00abe7964bc02c07c5b5d00a0_5641a837_250" src="https://github.com/user-attachments/assets/fb54be4e-6637-4ea5-9678-28f8056428e3" />
 ## 𝘏𝘦𝘭𝘭𝘰.ᐟ 𝘐'𝘮 𝘕𝘰𝘦𝘭, (𝘰𝘳 𝘌𝘥𝘥𝘪𝘦).ᐟ
 <img width="1280" height="114" alt="tumblr_3b56d3e63eeff01cda3004bfb867efc6_8437b43a_1280" src="https://github.com/user-attachments/assets/0cd1f702-a46d-43c9-8fdc-6c983c3dc0b0" />
 
