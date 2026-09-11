@@ -1,14 +1,13 @@
 ## 𝘏𝘦𝘭𝘭𝘰.ᐟ 𝘐'𝘮 𝘕𝘰𝘦𝘭, (𝘰𝘳 𝘌𝘥𝘥𝘪𝘦).ᐟ
 <img width="1280" height="114" alt="tumblr_3b56d3e63eeff01cda3004bfb867efc6_8437b43a_1280" src="https://github.com/user-attachments/assets/0cd1f702-a46d-43c9-8fdc-6c983c3dc0b0" />
 
-𝘐 𝘩𝘢𝘷𝘦 𝘯𝘰 𝘋𝘕𝘐 𝘤𝘳𝘪𝘵𝘦𝘳𝘪𝘢; 𝘐 𝘣𝘭𝘰𝘤𝘬 𝘭𝘪𝘣𝘦𝘳𝘢𝘭𝘭𝘺 𝘢𝘯𝘥 𝘸𝘪𝘭𝘭 𝘥𝘰 𝘴𝘰 𝘪𝘧 𝘐 𝘧𝘪𝘯𝘥 𝘺𝘰𝘶 𝘢𝘯𝘯𝘰𝘺𝘪𝘯𝘨, 𝘥𝘰𝘯'𝘵 𝘸𝘢𝘯𝘵 𝘵𝘰 𝘪𝘯𝘵𝘦𝘳𝘢𝘤𝘵 𝘸𝘪𝘵𝘩 𝘺𝘰𝘶, 𝘰𝘳 𝘵𝘩𝘪𝘯𝘬 𝘺𝘰𝘶 𝘴𝘶𝘤𝘬. 
+I have no DNI criteria; I block liberally and will so do if you're under 18, I find you annoying, I don't want to interact with you, or you're not a good person.
 
-𝘓𝘪𝘬𝘦𝘸𝘪𝘴𝘦, 𝘪𝘧 𝘴𝘰𝘮𝘦𝘵𝘩𝘪𝘯𝘨 𝘐 𝘴𝘢𝘺 𝘶𝘱𝘴𝘦𝘵𝘴/𝘵𝘳𝘪𝘨𝘨𝘦𝘳𝘴 𝘺𝘰𝘶, 𝘐 𝘦𝘹𝘱𝘦𝘤𝘵 𝘺𝘰𝘶 𝘵𝘰 𝘣𝘭𝘰𝘤𝘬 𝘮𝘦 𝘢𝘯𝘥 𝘤𝘶𝘳𝘢𝘵𝘦 𝘺𝘰𝘶𝘳 𝘦𝘹𝘱𝘦𝘳𝘪𝘦𝘯𝘤𝘦. 
+Likewise, if something I say upsets or triggers you— I expect you to be responsible, curate your experience and block me.
 
-𝘐𝘵 𝘪𝘴 𝘯𝘰𝘵 𝘮𝘺 𝘳𝘦𝘴𝘱𝘰𝘯𝘴𝘪𝘣𝘪𝘭𝘪𝘵𝘺 𝘵𝘰 𝘯𝘰𝘳 𝘢𝘮 𝘐 𝘪𝘯𝘵𝘦𝘳𝘦𝘴𝘵𝘦𝘥 𝘪𝘯 𝘸𝘢𝘭𝘬𝘪𝘯𝘨 𝘰𝘯 𝘦𝘨𝘨𝘴𝘩𝘦𝘭𝘭𝘴 𝘢𝘳𝘰𝘶𝘯𝘥 𝘰𝘳 𝘤𝘰𝘥𝘥𝘭𝘪𝘯𝘨 𝘨𝘳𝘰𝘸𝘯 𝘢𝘥𝘶𝘭𝘵𝘴 𝘐 𝘢𝘮 𝘯𝘰𝘵 𝘦𝘷𝘦𝘯 𝘢𝘧𝘧𝘪𝘭𝘪𝘢𝘵𝘦𝘥 𝘸𝘪𝘵𝘩.
+It is not my responsibility to nor am I interested in walking on eggshells around or coddling grown adults I am not affiliated with.
 
-𝘋𝘰𝘯'𝘵 𝘦𝘹𝘱𝘦𝘤𝘵 𝘮𝘦 𝘵𝘰 𝘣𝘦 𝘯𝘪𝘤𝘦 𝘵𝘰 𝘺𝘰𝘶 𝘪𝘧 𝘐 𝘥𝘰𝘯'𝘵 𝘬𝘯𝘰𝘸 𝘺𝘰𝘶, 𝘢𝘯𝘥 𝘥𝘰𝘯'𝘵 𝘪𝘯𝘷𝘰𝘭𝘷𝘦 𝘮𝘦 𝘪𝘯 𝘴𝘵𝘶𝘱𝘪𝘥 𝘴𝘩𝘪𝘵 𝘐 𝘥𝘰𝘯'𝘵 𝘤𝘢𝘳𝘦 𝘢𝘣𝘰𝘶𝘵.
-
+Don't expect me to be nice to you if I don't know you, and don't involve me in stupid shit that I don't care about.
 <img width="1280" height="114" alt="tumblr_3b56d3e63eeff01cda3004bfb867efc6_8437b43a_1280" src="https://github.com/user-attachments/assets/0cd1f702-a46d-43c9-8fdc-6c983c3dc0b0" />
 <img width="540" height="222" alt="1bfdffbf3663f0f3bb7138ab578a7204" src="https://github.com/user-attachments/assets/f29a5c03-5790-496b-9eff-1ddc41206bdc" />
 
