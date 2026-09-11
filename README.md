@@ -9,6 +9,7 @@
 
 𝘋𝘰𝘯'𝘵 𝘦𝘹𝘱𝘦𝘤𝘵 𝘮𝘦 𝘵𝘰 𝘣𝘦 𝘯𝘪𝘤𝘦 𝘵𝘰 𝘺𝘰𝘶 𝘪𝘧 𝘐 𝘥𝘰𝘯'𝘵 𝘬𝘯𝘰𝘸 𝘺𝘰𝘶, 𝘢𝘯𝘥 𝘥𝘰𝘯'𝘵 𝘪𝘯𝘷𝘰𝘭𝘷𝘦 𝘮𝘦 𝘪𝘯 𝘴𝘵𝘶𝘱𝘪𝘥 𝘴𝘩𝘪𝘵 𝘵𝘩𝘢𝘵 𝘐 𝘥𝘰𝘯'𝘵 𝘤𝘢𝘳𝘦 𝘢𝘣𝘰𝘶𝘵.
 <img width="1280" height="114" alt="tumblr_3b56d3e63eeff01cda3004bfb867efc6_8437b43a_1280" src="https://github.com/user-attachments/assets/0cd1f702-a46d-43c9-8fdc-6c983c3dc0b0" />
+
 <img width="540" height="222" alt="1bfdffbf3663f0f3bb7138ab578a7204" src="https://github.com/user-attachments/assets/f29a5c03-5790-496b-9eff-1ddc41206bdc" />
 
 
